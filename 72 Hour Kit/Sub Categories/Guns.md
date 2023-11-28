@@ -1,0 +1,5 @@
+If guns will be included in your 72 hour kit there are a few considerations to keep in mind. A hand gun is idea as it is small lightweight easily concealable be sure to get your [WA Concealed pistol license](https://my.spokanecity.org/police/information/licenses-and-permits/). 
+- Getting your Concealed pistol license is very easy in WA as it is a Shall issue state. You just need to fill out the form. And schedule a time to get fingerprinted they will perform a background check and send you your Concealed pistol license card in the mail.
+- If you have kids at home you will need to keep to gun rendered safe. That will mean keeping it secured. The ideal solution is to store your 72 hour kit in a gun safe. (this is costly but the most secure).
+	- The gun and ammo should be stored separately in the same bag and if stored in the same bag in a different compartment.
+- If multiple people will be carrying guns it is best to have the same type of gun across all members as this allows multiple people to share ammo and magazines. 
